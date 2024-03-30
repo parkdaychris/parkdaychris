@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @parkdaychris
+- 👀 I’m interested in IT platforming.
